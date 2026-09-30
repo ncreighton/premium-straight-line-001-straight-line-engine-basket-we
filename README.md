@@ -1,0 +1,2 @@
+# premium-straight-line-001-straight-line-engine-basket-we
+Tired of scattered notes and messy spreadsheets when tracking your straight line engine builds and test runs? The 'Straight Line Engine Basket Weave Pattern Log' brings order to chaos with a visual, alternating pattern that makes data comparison effortless.  This template centralizes all engine specs, parts, and performance data into one clean Noti
